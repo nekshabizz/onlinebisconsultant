@@ -5,3 +5,4 @@ Step-by-step guide to obtaining BIS registration
 Common challenges faced by toy manufacturers
 How our consultants simplify the certification process
 Success stories: Brands that achieved compliance with our help
+https://www.onlinebisconsultant.com/bis-certification-for-toys/
